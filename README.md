@@ -1,3 +1,3 @@
 ### Hi, I'm Esther 👋🏻 👩🏻‍💻
 
-🌐 [esthermakes.tech](https://esthermakes.tech/)  
+🌐 [estherjk.com](https://estherjk.com)  
